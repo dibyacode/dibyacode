@@ -1,4 +1,4 @@
-### So You Want To Fuck With My Code!!!
+### ⚡ Don't you want to mess with my CODE </>
 
 <!--
 **dibyacode/dibyacode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
